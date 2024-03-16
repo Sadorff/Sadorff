@@ -20,7 +20,6 @@ https://gamejolt.com/games/tjocsm/139218
  --------------------------------------------------------------------------
  \ Roblox 9/10 /
  
-• Account : Username : GGM1R | Password : XxYuosifxX1 •
  https://www.roblox.com/my/avatar
  --------------------------------------------------------------------------
  More Games Ik :)
